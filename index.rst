@@ -5,4 +5,7 @@ Sangre
    :maxdepth: 2
 
    boceto
-   i
+   i.profecia
+   ii.hijo
+   iii.resurreccion
+   iv.estrella
