@@ -2,20 +2,20 @@
  La resurrección de la carne
 =============================
 
-- Tiiiit.
+--- Tiiiit.
 
 Dolor. Blanco, brillante. Los ojos duelen y pican. Quiere mover la mano pero
 ésta sigue en su lugar, sorda a las órdenes de su cerebro.
 
-- Tiiiit.
+--- Tiiiit.
 
 Sube una náusea por su eszófago pero apenas puede mover su cabeza, pero la
 arcada trae nada consigo; su estómago está vacío. Lo ha estado por los últimos
 1.300 años.
 
-- Tiiiit.
+--- Tiiiit.
 
---
+-------------------------------------------------------------------------------
 
 La puerta del compartimiento parecía estar soldada, no, soldada no, oxidada.
 Debió haber algún tipo de líquido fluyendo pero lo intrigante era que el único
