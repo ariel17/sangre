@@ -21,5 +21,4 @@ está?
 
 --- ¿No puedes volver con él?
 
---- Ya no... en cierta forma eso define el éxito de nuestro viaje. En eso
-    consistía.
+--- Ya no... en cierta forma eso define el éxito de nuestro viaje.
