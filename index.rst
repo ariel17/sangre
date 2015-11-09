@@ -4,9 +4,6 @@ Sangre
 .. toctree::
    :maxdepth: 2
 
-   boceto
-   i.profecia
-   ii.hijo
-   iii.resurreccion
-   iv.estrella
-   sin-titulo
+   boceto/index
+   copo-de-nieve/index
+   desarrollo/index

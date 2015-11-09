@@ -1,8 +1,8 @@
 .. Bosquejo de la estructura de la historia.
 
-========
- Boceto
-========
+============
+ Estructura
+============
 
 #. Profecía.
 #. Bienvenida.
