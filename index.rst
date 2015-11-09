@@ -4,6 +4,6 @@ Sangre
 .. toctree::
    :maxdepth: 2
 
-   boceto/index
+   borrador/index
    copo-de-nieve/index
    desarrollo/index

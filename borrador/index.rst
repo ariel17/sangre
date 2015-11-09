@@ -1,10 +1,10 @@
-========
- Boceto
-========
+==========
+ Borrador
+==========
 
 .. toctree::
    :maxdepth: 2
 
    estructura
-   borrador
+   borrador-1
    tormenta
