@@ -1,5 +1,5 @@
-El juicio a las emociones
-=========================
+Borrador
+========
 
 Los primeros días de Noviembre son todos iguales, al menos en temperamento: al
 Sol te da calor pero se siente soplar el viento de la lluvia presta a caer
