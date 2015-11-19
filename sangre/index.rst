@@ -7,3 +7,4 @@ Sangre
    borrador/index
    copo-de-nieve
    desarrollo/index
+   preguntas
