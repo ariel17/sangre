@@ -33,7 +33,7 @@ encuentran a sí mismos"* pensó con rapidez. Hizo un ademán con la mano; *"Ud.
 dirá por qué estamos todos en esta sala"*.
 
 --- Quiero justicia, Señor. ---Antonio ahorcaba el pañuelo con las dos manos,
-como si fuese el culpable.--- Estas emociones  hicieron mella en mí; se
+como si fuese el culpable---. Estas emociones  hicieron mella en mí; se
 ensañaron. Como el único interesado en mi salud mental exijo algún tipo de
 retribución.
 
@@ -51,27 +51,65 @@ ingreso estable y es Ud. quien cubre todos sus gastos.
 claro, ¿qué clase de justicia?
 
 --- La verdad develada. El secreto que nos une a la fuerza. Esta... unión, o
-sociedad o lo que sea, se erigió con un motivo que ellas saben y yo ignoro.
+sociedad o como se llame, se erigió con un motivo que ellas saben y yo ignoro.
 
-[ Juicio ]
+-------------------------------------------------------------------------------
+
+La Furia se sentó lentamente en el sillón al lado del Juez. Acomodó su ropaje
+antigüo, como el que se usó en Inglaterra en siglo XVIII. Los ojos rojos
+preparados para incendiar el interior de cualquiera, una caldera lista para 
+proveer de odio y fuerza a cualquiera en la situación de vida o muerte, propia
+o ajena.
+
+--- Ud. tiene la particular cualidad de brotar y permanecer allí donde floreció
+cual diente de león entre 2 baldozas.
+
+[...]
+
+--- No puedo creer que alguien te haya dado espacio en este cotorreo,
+Antonio... ---La Furia tapaba su cara con las manos en un más que evidente
+fingido gesto de aflicción.
+
+--- ¡Por favor, mantenga la compostura y responda la pregunta!
+
+--- ¡Pero si es eso lo que estoy haciendo! Antonio tiene esta maldita costumbre
+de autoinmolarse frente a los demás. ¿Y de dónde saca la fuerza para juntar sus
+trastos y la poca decencia que nos deja? ¡DE MÍ! ---sacudiendo el dedo índice y
+su brazo con fuerza, apuntaba a la frente de Antonio como si fuese el punto más
+brillante en el cielo sin Luna. Apoyado con el otro brazo sobre la baranda daba
+la impresión de ser un animal enjaulado hacía tiempo... o ejercitado durante
+muchos años---. ¡¿Qué hizo de vos esa marmota de la que te enamoraste como un
+adolescente?! Por Dios, te tuve que ir a buscar a la puerta de ese bar para que
+los que pasaran no te escupieran más...
+
+Se hizo un silencio incómodo. Un fulgor rojizo se desprendía de la piel de la
+Furia, presta a incinerarse por naturaleza. Respiró hondo, se acomodó el pelo y
+luego se sentó. Nunca le quitó los ojos de encima a Antonio.
+
+--- Yo te di las armas. Yo te di la inspiración en cada noche de tu vida. Fui
+tu musa y tu arte. No tengo por qué estar acá.
+
+-------------------------------------------------------------------------------
 
 A Antonio se lo veía agotado, cabizbajo. Todo su mundo había sido expuesto a
 los ojos y oídos de los presentes, curiosos como niños e igual de incapaces
-para ayudarlo, y ante un Juez, una simple persona puesta ahí por otra simple
+de ayudarlo, y ante un Juez, una simple persona puesta ahí por otra simple
 persona para juzgarlo a él y sus emociones. La última que había hecho eso fue
 su padre, pero a él Dios lo puso ahí. La relación con su padre había sido dura,
-de constantes desencuentros pero de amor sincero y cuando murió sintió cerrarse
-con llave una habitación en su corazón. Ver a esta persona, a este Juez, hacer
-la sombra de lo que hacía su padre pero sin un verdadero interés le hacía
-sentir a un ladrón en la habitación cerrada, revolviendo las vestiduras que 
-antaño llevase con tanto honor, sin poder hacer nada. No estaba seguro de si su
-padre lo reprobaría; hubo amor pero poca comunicación. Siguió meditando unos
-momentos y luevo levantó el rostro, más envejecido, cuando le Juez volvió a la
-sala. Supo que lo querría, aunque pasara lo peor.
+de constantes desencuentros pero de un amor sincero y silencioso a medida que
+el camino de la vida los alejaba uno del otro, y cuando murió sintió cerrarse
+con llave una habitación en su corazón: dos, tres vueltas de llave. Ahora ver a
+esta persona, a este Juez, hacer la sombra de lo que hacía su padre pero sin un
+verdadero interés le producía un sentimiento de arrebato: un ladrón en la
+habitación cerrada, revolviendo las vestiduras que antaño llevase su padre con
+tanto honor, sin poder hacer nada. Ya no estaba seguro de si su padre lo
+reprobaría; hubo amor pero poca comunicación. Siguió meditando unos momentos y
+luevo levantó el rostro, más envejecido, cuando el Juez volvió a la sala. Supo
+que lo querría, aunque pasara lo peor.
 
 --- De pié para recibir el veredicto, por favor ---dijo el Juez. *"Extraños
 recuerdos llaman a tu puerta en el peor momento"* pensó Antonio mientras se
-erguía, ya indefenso pero completamente entregado.
+erguía, ya indefenso pero entregado por completo.
 
 --- El suyo ha sido un caso interesante señor Antonio, pero no difícil. Sin
 embargo, debo reconocer que ha sido un buen ejercicio mental; un viento fresco
