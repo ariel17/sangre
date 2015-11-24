@@ -15,3 +15,7 @@
    los Macabeos denunciaron q Israel estaba portándose en forma opuesta a las
    enseñanzas del Señor y por eso los mataron y ahora a todos los cristianos
    los matan por defender la verdad como los primeros. 
+
+* ¿Cómo se llama la ropa de Inglaterra del siglo XVIII?
+
+  Ejemplo: http://www.vam.ac.uk/content/articles/i/interactive-formal-wool-coat-1700-5/
