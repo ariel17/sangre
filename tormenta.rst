@@ -1,6 +1,9 @@
-====================
- Lluvia de cerebros
-====================
+======================
+ Tormenta de cerebros
+======================
+
+2015-11-03
+==========
 
 Hay una canción que retumba en mi cabeza todas las mañanas. Dice "necesito tu
 cielo, cielo" y no puedo hacerla detener. Abro los ojos y mi mente me canta esa
@@ -25,6 +28,17 @@ la culpa no se sintió atajada por un poco de culpa como era de esperarse. "Yo
 aparezco cuando me necesitan y estoy donde me dan lugar; si su mundo se detiene
 yo no estoy acá para hacerlo rodar". Y con eso arrancamos el día.
 
--------------------------------------------------------------------------------
+2015-11-24
+==========
 
-dummy
+Abrí las cortinas que muestran el cielo en la noche y un fulgor rojo se
+precipitó sobre mí como un tren que lleva mi sangre. Compré un boleto hasta mi
+casa pero la boletera me dio uno hasta el final del camino. *"Vas a viajar
+hasta el final todos los días de tu vida"* me dijo con el alma ausente, la
+mirada perdida en un tren que ella nunca iba a tomar.
+
+*"Vamos"* me dijo la que estaba conmigo, el rostro borroso pero las manos
+suaves, con el andar rápido de la vida adolescente. El tren se llena de
+extraños, *"Se llena de sangre"* y de mí también. Hubo un tiempo u otro lugar,
+lo siento, que mi sangre caminaba. *"Ya no más caminos. Todos
+---intelegible---, todos quemados"*.
