@@ -52,8 +52,9 @@ claro, ¿qué clase de justicia?
 
 --- La verdad develada. El secreto que nos une a la fuerza. Esta... unión, o
 sociedad o como se llame, se erigió con un motivo que ellas saben y yo ignoro.
+Quisiera llamar a mi primer acusado, si está de acuerdo: Furia.
 
--------------------------------------------------------------------------------
+--- Que pase el acusado, por favor.
 
 La Furia se sentó lentamente en el sillón al lado del Juez. Acomodó su ropaje
 antigüo, como el que se usó en Inglaterra en siglo XVIII. Los ojos rojos
@@ -91,6 +92,36 @@ tu musa y tu arte. No tengo por qué estar acá.
 
 -------------------------------------------------------------------------------
 
+El Amor se sentó despacio y temeroso en la silla. Se sentía acusado, testigo de
+algo terrible pero no supo concretamente de qué. No conseguía obtener 
+refugio en los ojos de Antonio, que miraba al piso: uno buscaba acercarse y el
+otro la forma de castigarlo mejor.
+
+--- ¿Siempre actuó solo, señor?
+
+--- Nno... entiendo.
+
+--- Sus actos deliberados siempre parecieron dictados por la orden de alguien
+más. Dado su evidente falta de carácter, el sentido común me indica que fue
+cómplice de una mente superior.
+
+--- Siempre estuve solo. --- Antonio frunció el ceño al escuchar esa frase; la
+hubía escuchado con anterioridad muchas veces.
+
+--- ¿Por qué hacés ésto, Antonio? ¿Al fin encontraste a tus chivos expiatorios?
+El Odio en vos te está consumiendo... llegamos a este punto y nos acusamos
+mutuamente, entre inocentes. Yo se que sos inocente. Te vi crecer más de cerca
+incluso que tu madre, oooh sí: te recuerdo de niño jugando con los bichitos en
+el jardín, diciendo tu primer "te amo", amando por primera vez. Yo estuve ahí
+cuando el amor se fue. Siempre fuiste caprichoso en aceptar verdades, eso es lo
+que te llevó por mal camino.
+
+-------------------------------------------------------------------------------
+
+El Juez juntó sus papeles y se puso de pié.
+
+--- Ya tengo lo suficiente para tomar una decisión. Volveré en unos minutos.
+
 A Antonio se lo veía agotado, cabizbajo. Todo su mundo había sido expuesto a
 los ojos y oídos de los presentes, curiosos como niños e igual de incapaces
 de ayudarlo, y ante un Juez, una simple persona puesta ahí por otra simple
@@ -117,5 +148,38 @@ en esta rutina. ---cruzó las manos frente a él, satisfecho de sí mismo--- Voy
 fallar en contra suya señor Antonio: sus emociones no le deben nada; en todo
 caso Ud. le debe a ellas todo cuanto es. El secreto que los une no puedo 
 enseñárselo pero sí decirle dónde está: en su baño, en el espejo al que se mira
-todas las mañanas. En Ud. mismo, señor. En el amor a su propia escencia.
+todas las mañanas. En Ud. mismo, señor. Si a alguien debe preguntarle el
+sentido de la vida, ese es Ud. Lamento de verdad que no haya tenido un amigo,
+un familiar o la propia capacidad de reencontrar el camino... pero no todo está
+perdido mi amigo y he aquí mi sentencia: lo condeno a caminar todas las
+mañanas, apenas se levanta de la cama, de la mano con el Amor y la Furia aquí
+presentes. Conózcanse, únanse, acéptense... y vayan a tomar un café. Y si está
+dispuesto a recibir a alguien en su vida, deje una silla vacía en su mesa del
+bar para quien tenga lugar en su alma para Ud. Caso cerrado.
 
+El martillo hizo un estallido al golpear la mesa; todos se levantaron de
+inmediato para retirarse cual martillo mágico, menos Antonio. Miró al Juez
+retirarse como si acabase de llegar a su destino de vacaciones. El oficial iba
+detrás del Juez, fiel perro que olfatea por dónde está su comida... esta noche
+tendrá una historia larga y graciosa qué contar cuando llegue a casa. Apretó
+fuerte los labios, resopló por la nariz. Tomó sus cosas y se fue último de la
+sala.
+
+Afuera del recinto judicial, Antonio y sus acusados cruzan miradas. Él se
+dirige a un auto conducido por una mujer de oscuros cabellos y, salidos de la
+nada, mil periodistas corren hacia Antonio como si fuesen cazadores saltando
+sobre la presa:
+
+--- ¡Señor Antonio! Julio Anastasio por acá. ¿Está conforme en el actuar de la 
+Justicia el día de hoy? ¿Tiene intenciones de comenzar de inmediato?
+
+--- No tengo inteciones de comenzar nada: voy a apelar la resolución que se
+dictó hoy. La justicia de hoy día sólo beneficia a quienes tienen la capacidad
+de ensalivar los oídos de alguien poderoso con palabras dulces y una historia
+falaz que malversa los hechos. Acá no hubo un perjudicado más que yo.
+
+Una marea de periodistas me arrebató mi acercamiento, pero ahí lo tienen
+señoras y señores, un hombre que afirma su inocencia y que peleará por ella.
+Ahora mismo se marcha en el automóvil mencionado, sobre el mismo asfalto que
+conducimos todos, señoras y señores. Es el mismo camino que el suyo y el mío...
+¿qué es lo que hace que para él sea un mal camino?
