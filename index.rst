@@ -7,3 +7,4 @@ Sangre
    tormenta
    sangre/index
    juicio/index
+   prisionero/index
